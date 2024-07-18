@@ -9,7 +9,8 @@ My interests at the moment include: Smiling Friends, Trolls, Fallout(GAMES), DBH
 
 The only DNI I have is if you judge someone else for their interests, even if they're called "problematic" and obviously if you are homophobic or racist. 
 
-!I DO ART COMMISSIONS! 
+!I DO ART COMMISSIONS! READ THIS FOR REQUEST FORMATTING: 
+
 EMAIL ME AT: bluieartcomm@gmail.com for inquiries!
 
 ![commsheet](https://github.com/user-attachments/assets/2d102794-51af-4fab-a555-d5daca50bbbf)
