@@ -11,8 +11,6 @@ The only DNI I have is if you judge someone else for their interests, even if th
 
 !I DO ART COMMISSIONS! READ THIS BEFORE REQUESTING: https://docs.google.com/document/d/1OxB_TEgEvSIhnWSzGxjwEY6RehyQL6_TOSUh5UujiGU/edit?usp=sharing
 
-EMAIL ME AT: bluieartcomm@gmail.com for inquiries!
-
 ![commsheet](https://github.com/user-attachments/assets/2d102794-51af-4fab-a555-d5daca50bbbf)
 
 
